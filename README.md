@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 💙💙
+## Boas vindas ao meu perfil 😼😼
 Meu nome é Gabriel Santos Silva
 
 Estou estudando na Alura
